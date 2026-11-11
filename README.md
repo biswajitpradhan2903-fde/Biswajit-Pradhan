@@ -1,2 +1,0 @@
-# Biswajit-Pradhan
-Resume
